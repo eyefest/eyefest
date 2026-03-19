@@ -1,6 +1,9 @@
 
 <p align="center"><img src=https://komarev.com/ghpvc/?username=impulsivepersona&color=5c7c00&style=plastic&label=++VOLUNTARY+SUICIDE++&abbreviated=true)></img></p>
   <br>
+   <p align="center">          
+   $${\color{#165600} THIS　\color{#266b00} IS　\color{#5c7c00} YOUR　\color{#769f00} OWN　\color{#9aa90a} FAULT}$$ <br>
+ <br>
 <p align="center">
   <img src="https://cdn.discordapp.com/attachments/934596480310853685/1473904539425050687/Untitled185_20260218162001_edit_96170160332199.png?ex=69bcd212&is=69bb8092&hm=20ebc06d664b7621d739ac44771dbf711229d3f518c7c1372979d19025ead1c3&" width="500"/>
 </p>
