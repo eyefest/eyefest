@@ -12,4 +12,4 @@
    $${\color{#063a00} YOU　\color{#165600} ARE　\color{#266b00} A　\color{#5c7c00} GLUTTON　\color{#769f00} FOR　\color{#9aa90a} PUNISHMENT.}$$ <br>
  <br>
 <h6 align>
-<p align="center"><a href="https://pronouns.cc/yvoisen">prns.cc</a>ㅤㅤ<a href="https://yvoisen.atabook.org">新book</a>ㅤㅤ<a href="https://yvoise.straw.page">straw</a>
+<p align="center"><a href="https://pronouns.cc/yvoisen">prns.cc</a>ㅤㅤ<a href="https://yvoisen.atabook.org">新book</a>ㅤㅤ<a href="https://guns.lol/yvoisen">guns.lol</a>
