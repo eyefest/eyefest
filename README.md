@@ -1,4 +1,6 @@
 
+<p align="center">
+<img src="https://api.visitorbadge.io/api/visitors?path=impulsivepersona&label=++VOLUNTARY+SUICIDE++&labelColor=%769f0000&countColor=%063a0000&style=plastic">
 <p align="center"><img src=https://komarev.com/ghpvc/?username=impulsivepersona&color=769f00&style=plastic&label=++VOLUNTARY+SUICIDE++&abbreviated=true)></img></p>
   <br>
    <p align="center">          
