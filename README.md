@@ -1,6 +1,6 @@
 
 <p align="center">
-<img src="https://api.visitorbadge.io/api/visitors?path=eyefest&label=+++VOLUNTARY++SUICIDE+++&labelColor=%23165600&countColor=%23769f00&style=plastic">
+<img src="https://api.visitorbadge.io/api/visitors?path=eyefest&label=+++VOLUNTARY++SUICIDE+++&labelColor=%23165600&countColor=%23769f00&style=for+the+badge">
   <br>
    <p align="center">          
    $${\color{#165600} THIS　\color{#266b00} IS　\color{#5c7c00} YOUR　\color{#769f00} OWN　\color{#9aa90a} FAULT.}$$ <br>
