@@ -1,5 +1,5 @@
 
-<p align="center"><img src=https://komarev.com/ghpvc/?username=impulsivepersona&color=5c7c00&style=plastic&label=++VOLUNTARY+SUICIDE++&abbreviated=true)></img></p>
+<p align="center"><img src=https://komarev.com/ghpvc/?username=impulsivepersona&color=769f00&style=plastic&label=++VOLUNTARY+SUICIDE++&abbreviated=true)></img></p>
   <br>
    <p align="center">          
    $${\color{#165600} THIS　\color{#266b00} IS　\color{#5c7c00} YOUR　\color{#769f00} OWN　\color{#9aa90a} FAULT.}$$ <br>
