@@ -16,3 +16,8 @@
  <br>
 <h6 align>
 <p align="center"><a href="https://pronouns.cc/yvoisen">prns.cc</a>ㅤㅤ<a href="https://yvoisen.atabook.org">新book</a>ㅤㅤ<a href="https://guns.lol/yvoisen">guns.lol</a>
+ <div align="center">
+  <details>
+ <summary>note</summary>
+ as tough as it is, i do not associate myself with pressure anymore. i wish the best for ren and hope they are healing well.
+</details>
