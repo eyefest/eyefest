@@ -19,7 +19,7 @@
  <div align="center">
   <details>
  <summary>note</summary>
- as tough as it is, i do not associate myself with pressure anymore. i wish the best for ren and hope they are healing well.
+ i do not associate myself with pressure anymore.
  <br>
     not changing this profile because eyefestation will always be special to me.
 </details>
